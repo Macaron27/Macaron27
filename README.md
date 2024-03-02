@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Macaron27
+- 👀 I’m interested in developpement
+- 📫 How to reach me: discord (macaron27)
+- 😄 Pronouns: he/him
